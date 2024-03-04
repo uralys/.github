@@ -1,4 +1,4 @@
-## Welcome 👋
+## Thanks for coming here 👋
 
 <img src="https://www.uralys.com/assets/world2-2160x1215-371d1e0e.webp" alt="Avindi's Valley" />
 

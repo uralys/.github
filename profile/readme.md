@@ -5,6 +5,7 @@
 <sub>Kind of village you can visit playing Sylvestrine ❤️</sub>
 
 - wishlist Faraday Corridors: <https://store.steampowered.com/app/4758990/Faraday_Corridors/>
+- play the demo on itch.io: <https://uralys.itch.io/faraday-corridors>
 
 <img width="400" src="https://img.itch.zone/aW1nLzI5ODkyODk0LmdpZg==/original/eDH05K.gif" />
 
